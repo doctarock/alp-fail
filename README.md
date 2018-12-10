@@ -111,6 +111,7 @@ In all good conscience, we can no longer support Labor. We will be advocating fo
 - [David Vo](https://vovo.id.au)
 - [Dean Tregenza](https://twitter.com/deantregenza/status/1071228391464984576)
 - [Delan Azabani](https://www.azabani.com)
+- [Derek Robertson](https://www.derek.net.au)
 - [Dylan Aird](https://github.com/gl3nda85)
 - [Eamon Logue](https://twitter.com/Ultimus_Maximus/status/1071031978139340800)
 - [Ed Dale](https://twitter.com/Ed_Dale/status/1070977749689368577)
